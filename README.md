@@ -2,8 +2,8 @@
  
 <br /><br />◐★◑ iPhone/安卓通用（强烈推荐）
 
-邀请码7HIYHG可获取等级权限
-<br />（微信屏蔽，请复制链接后粘贴到浏览器打开）
+
+<strong><br />（微信屏蔽，请复制链接后粘贴到浏览器打开）<strong>
 <br /><a href="http://vq0g8n.378xj.club/?inviteCode=VQ0G8N">https://sohu.gg/5Qf27p</a>
   <br />
 <br /><br />◐★◑ iPhone/安卓通用（如果上面那个下不了就下这个）
