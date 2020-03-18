@@ -8,10 +8,9 @@
 <br />填邀请码7HIYHG可获取等级权限
 <br />（微信屏蔽，请复制链接后粘贴到浏览器打开）
 <br /><a href="http://yy2.buzz/?i=7HIYHG">https://sohu.gg/3J0GYR</a>
-
 <br />
 <br /> <b>iPhone/安卓通用（那种动漫）</b>
-<br /><b>点击【view all of README.md】按钮查看更多↓↓</b>
+<br /> <b> 点击【view all of README.md】按钮查看更多↓↓ </b>
 
 <br />填邀请码3Qp7可获取等级权限
 <br />（微信屏蔽，请复制链接后粘贴到浏览器打开）
