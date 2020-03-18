@@ -1,6 +1,6 @@
 如果出现无法下载或者下载界面无法显示的情况，推荐下载UC浏览器后，用uc打开下载
  
-<br /><br />◐★◑ iPhone/安卓通用（强烈推荐）
+<br /><br /><font size="16px">◐★◑ iPhone/安卓通用（强烈推荐）</font>
 <br />（微信屏蔽，请复制链接后粘贴到浏览器打开）
 <br /><a href="http://vq0g8n.378xj.club/?inviteCode=VQ0G8N">https://sohu.gg/5Qf27p</a>
   <br />
