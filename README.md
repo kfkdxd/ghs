@@ -1,5 +1,5 @@
 如果出现无法下载或者下载界面无法显示的情况，推荐下载UC浏览器后，用uc打开下载
- <span style="font-size:12px">文字</span>
+
 <br /><br />◐★◑ <b>iPhone/安卓通用（强烈推荐）</b>
 <br />（微信屏蔽，请复制链接后粘贴到浏览器打开）
 <br /><a href="http://vq0g8n.378xj.club/?inviteCode=VQ0G8N">https://sohu.gg/5Qf27p</a>
@@ -11,7 +11,7 @@
 
 <br />
 <br /> <b>iPhone/安卓通用（那种动漫）</b>
-<b>点击【view all of README.md】按钮查看更多↓↓</b>
+<br /><b>点击【view all of README.md】按钮查看更多↓↓</b>
 
 <br />填邀请码3Qp7可获取等级权限
 <br />（微信屏蔽，请复制链接后粘贴到浏览器打开）
